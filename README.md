@@ -1,4 +1,4 @@
-<img width="406" height="305" alt="image" src="https://github.com/user-attachments/assets/4bc28496-b703-4589-afb9-1f2986f9516c" /><H3>TRISHA PRIYADARSHNI PARIDA</H3>
+<H3>TRISHA PRIYADARSHNI PARIDA</H3>
 <H3>212224230293</H3>
 <H3>EX. NO.5</H3>
 <H3>11-11-2026</H3>
